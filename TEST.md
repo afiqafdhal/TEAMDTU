@@ -8,3 +8,4 @@ pweet
 psst
 reply lah :(
 ah malas aku
+asal tho
