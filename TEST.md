@@ -5,3 +5,4 @@ kau nak gi mana
 aku nak gi malatang
 pergi lah
 pweet
+psst
