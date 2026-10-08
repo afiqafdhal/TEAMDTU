@@ -7,3 +7,4 @@ pergi lah
 pweet
 psst
 reply lah :(
+ah malas aku
